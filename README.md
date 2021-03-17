@@ -10,4 +10,7 @@ használt ruhás
 ![56 föltöltve(5)](https://user-images.githubusercontent.com/66862598/111317827-ca129880-8664-11eb-89f9-1ce1d4682e43.JPG)
 ![56 föltöltve(6)](https://user-images.githubusercontent.com/66862598/111317831-cbdc5c00-8664-11eb-8b84-c4bc2735129d.JPG)
 
+![74 (2)](https://user-images.githubusercontent.com/66862598/111413908-66798100-86df-11eb-8ff1-3b0ca45cfcdc.JPG)
+![74 (3)](https://user-images.githubusercontent.com/66862598/111413913-68434480-86df-11eb-8ffe-fcff0854de2e.JPG)
+![74 (4)](https://user-images.githubusercontent.com/66862598/111413919-6b3e3500-86df-11eb-80fb-65afb66c1675.JPG)
 
