@@ -6,7 +6,7 @@ használt ruhás
 
 ![56 föltöltve(1)](https://user-images.githubusercontent.com/66862598/111317770-bd8e4000-8664-11eb-97c3-8bc98312bf3e.JPG)
 ![56 föltöltve(2)](https://user-images.githubusercontent.com/66862598/111317794-c4b54e00-8664-11eb-9ccb-a624743c68c2.JPG)
-![56 föltöltve(3)](https://user-images.githubusercontent.com/66862598/111317803-c67f1180-8664-11eb-86d4-637d1eb74562.JPG)
+![56 (8)](https://user-images.githubusercontent.com/66862598/111475693-a7988200-872d-11eb-9ccd-b50689301d99.JPG)
 ![56 föltöltve(4)](https://user-images.githubusercontent.com/66862598/111317815-c848d500-8664-11eb-9782-d9162091adce.JPG)
 ![56 föltöltve(5)](https://user-images.githubusercontent.com/66862598/111317827-ca129880-8664-11eb-89f9-1ce1d4682e43.JPG)
 ![56 föltöltve(6)](https://user-images.githubusercontent.com/66862598/111317831-cbdc5c00-8664-11eb-8b84-c4bc2735129d.JPG)
