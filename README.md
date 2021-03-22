@@ -25,4 +25,7 @@ használt ruhás
 ![92 (7)](https://user-images.githubusercontent.com/66862598/111415265-d6890680-86e1-11eb-9892-b1bccae9ee4a.JPG)
 ![92 (9)](https://user-images.githubusercontent.com/66862598/111415269-d7ba3380-86e1-11eb-989d-dd7d7804eaef.JPG)
 
+![74 feltöltve  (3)](https://user-images.githubusercontent.com/66862598/111941858-49272700-8ad2-11eb-980c-77c2996a1620.JPG)
+![92 feltöltve (1)](https://user-images.githubusercontent.com/66862598/111941868-4e847180-8ad2-11eb-883a-c042919736a5.JPG)
+
 [![Netlify Status](https://api.netlify.com/api/v1/badges/678fe410-1477-4372-b29c-9665790a0497/deploy-status)](https://app.netlify.com/sites/focused-knuth-057375/deploys)
